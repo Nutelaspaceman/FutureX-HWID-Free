@@ -10,3 +10,5 @@ FutureX-2.0-obfhwid = Was made because sirmemes & his friends fucked up the ca a
 
 -no
 **the files are unchanged, this is how i got them from sirmeme**
+ **and they are ratted so if u want just clean them or some shit**
+i just posted them so u can see it/test it
